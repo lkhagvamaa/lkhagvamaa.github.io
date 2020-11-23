@@ -1,1 +1,0 @@
-# lkhagvamaa.github.io
